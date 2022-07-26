@@ -14,7 +14,7 @@ Bem-vindo(a) ao perfil do Patrick 😁
  
  <br>
  
-  ### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+  ### Um pouco mais sobre mim !
  
 <div> 
 
